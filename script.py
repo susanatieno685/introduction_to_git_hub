@@ -1,0 +1,1 @@
+Lorem Ipsum is filler text (dummy text) used in printing, publishing, and web design to demonstrate the visual form of a document without using meaningful content. It has roots in 45 BC Latin literature by Cicero, specifically "de Finibus Bonorum et Malorum," making it over 2,000 years old, though it is now "scrambled" to be nonsensical
